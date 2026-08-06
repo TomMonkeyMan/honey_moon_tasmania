@@ -13,7 +13,7 @@ Melbourne 中转
 
 ### Day 2｜10.25 周日 Hobart
 抵达 Hobart
-安排： * 取车 入住 买补给 Salamanca Market（如果时间合适） 海边散步
+* 取车 买鞋 买补给 入住  Salamanca Market（如果时间合适） 海边散步
 
 ### Day 3｜10.26 周一 Hobart
 Port Arthur（亚瑟港）
