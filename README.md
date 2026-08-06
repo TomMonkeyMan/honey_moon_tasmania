@@ -6,12 +6,10 @@
 
 ### Day 0｜10.23 周五 出发
 晚上出发飞澳洲。
-<br>
 
 ### Day 1｜10.24 周六 Melbourne
 Melbourne 中转
 * 休息一晚
-<br>
 
 ### Day 2｜10.25 周日 Hobart
 抵达 Hobart
@@ -21,7 +19,6 @@ Melbourne 中转
 Port Arthur（亚瑟港）
 车程：
 约 1.5 小时
-
 * Port Arthur Historic Site
 * Tasman Peninsula 海岸线
 * Remarkable Cave 等
@@ -42,39 +39,37 @@ MONA
 * Battery Point
 * Salamanca
 * 市区慢逛
-⸻
+
 ### Day 6｜10.29 周四 Triabunna
 Maria Island 玛丽亚岛
 车程：
 约 1小时20分
 * Painted Cliffs
 * Fossil Cliffs
-⸻
+
 ### Day 7｜10.30 周五 Coles Bay / Freycinet
 Triabunna → Coles Bay
 车程： 约 2小时左右
 * Swansea
 * 海边小镇
 * 咖啡
-⸻
+
 ### Day 8｜10.31 周六 Coles Bay / Freycinet
 Wineglass Bay
 
 轻松： * Wineglass Bay Lookout
 经典： * Wineglass Bay + Hazards Beach Circuit
-⸻
+
 ### Day 9｜11.01 周日 Coles Bay / Freycinet
 * Wineglass Bay Cruise
 * Kayak
 * 海滩
 * 看袋鼠/Wallaby
-⸻
+
 ### Day 10｜11.02 周一 Hobart / Melbourne 
 Coles Bay → Hobart 约 2.5小时
 如果晚上飞机：直接机场
-⸻
 ### Day 11｜11.03 周二
 飞回
-⸻
 ### Day 12｜11.04 周三
 到家
