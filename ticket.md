@@ -18,6 +18,12 @@ https://www.pennicottjourneys.com.au/book?journey=tasman
 (9:15am Check In) 380
 
 ### Day 4｜10.27 周二 Hobart
+MONA 
+* Battery Point
+* Salamanca
+* 市区慢逛
+
+### Day 5｜10.28 周三 Triabunna
 Bonorong Wildlife Sanctuary
 
 上午：
@@ -30,18 +36,9 @@ Bonorong Wildlife Sanctuary
 * 咖啡
 * 小镇逛逛
 
-### Day 5｜10.28 周三 Hobart
-MONA 
-* Battery Point
-* Salamanca
-* 市区慢逛
-
 ### Day 6｜10.29 周四 Triabunna
 Maria Island 玛丽亚岛
-车程：
-约 1小时20分
-* Painted Cliffs
-* Fossil Cliffs
+https://www.bom.gov.au/australia/tides/#!/tas-darlington-jetty
 
 ### Day 7｜10.30 周五 Coles Bay / Freycinet
 Triabunna → Coles Bay
