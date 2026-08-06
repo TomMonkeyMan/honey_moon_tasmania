@@ -4,19 +4,17 @@
 
 10.23 晚出发 ～ 11.04 到家
 
-⸻
 ### Day 0｜10.23 周五 出发
 晚上出发飞澳洲。
-
+<br>
 ### Day 1｜10.24 周六 Melbourne
 Melbourne 中转
 * 休息一晚
-
-⸻
+<br>
 ### Day 2｜10.25 周日 Hobart
 抵达 Hobart
 安排： * 取车 入住 买补给 Salamanca Market（如果时间合适） 海边散步
-⸻
+
 ### Day 3｜10.26 周一 Hobart
 Port Arthur（亚瑟港）
 车程：
@@ -25,7 +23,7 @@ Port Arthur（亚瑟港）
 * Port Arthur Historic Site
 * Tasman Peninsula 海岸线
 * Remarkable Cave 等
-⸻
+
 ### Day 4｜10.27 周二 Hobart
 Bonorong Wildlife Sanctuary
 上午：
@@ -36,7 +34,7 @@ Bonorong Wildlife Sanctuary
 * Richmond
 * 咖啡
 * 小镇逛逛
-⸻
+
 ### Day 5｜10.28 周三 Hobart
 MONA 
 * Battery Point
