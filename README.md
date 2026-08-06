@@ -7,15 +7,15 @@
 ### Day 0｜10.23 周五 出发
 晚上出发飞澳洲。
 
-### Day 1｜10.24 周六 Melbourne
+### Day 1｜10.24 周六 stay in Melbourne
 Melbourne 中转
 * 休息一晚
 
-### Day 2｜10.25 周日 Hobart
+### Day 2｜10.25 周日 stay in Hobart
 抵达 Hobart
 * 取车 买鞋 买补给 入住  Salamanca Market（如果时间合适） 海边散步
 
-### Day 3｜10.26 周一 Hobart
+### Day 3｜10.26 周一 stay in Hobart
 Port Arthur（亚瑟港）
 车程：
 约 1.5 小时
@@ -23,9 +23,14 @@ Port Arthur（亚瑟港）
 * Tasman Peninsula 海岸线
 * Remarkable Cave 等
 
-### Day 4｜10.27 周二 Hobart
-Bonorong Wildlife Sanctuary
+### Day 4｜10.27 周二 stay in Hobart
+MONA 
+* Battery Point
+* Salamanca
+* 市区慢逛
 
+### Day 5｜10.28 周三 stay in Triabunna
+Bonorong Wildlife Sanctuary
 上午：
 * 9:30 Wombat Encounter 🐻
 * 喂袋鼠
@@ -34,15 +39,9 @@ Bonorong Wildlife Sanctuary
 下午：
 * Richmond
 * 咖啡
-* 小镇逛逛
+* 出发去 Triabunna
 
-### Day 5｜10.28 周三 Hobart
-MONA 
-* Battery Point
-* Salamanca
-* 市区慢逛
-
-### Day 6｜10.29 周四 Triabunna
+### Day 6｜10.29 周四 stay in Triabunna
 Maria Island 玛丽亚岛
 车程：
 约 1小时20分
