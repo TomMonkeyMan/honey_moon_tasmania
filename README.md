@@ -57,8 +57,8 @@ Triabunna → Coles Bay
 ### Day 8｜10.31 周六 Coles Bay / Freycinet
 Wineglass Bay
 
-* 轻松： Wineglass Bay Lookout
-* 经典： Wineglass Bay + Hazards Beach Circuit
+* Wineglass Bay Lookout 轻松
+* Wineglass Bay + Hazards Beach Circuit 经典
 
 ### Day 9｜11.01 周日 Coles Bay / Freycinet
 * Wineglass Bay Cruise
