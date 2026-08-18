@@ -16,18 +16,18 @@ Melbourne 中转
 * 取车 买鞋 买补给 入住  Salamanca Market（如果时间合适） 海边散步
 
 ### Day 3｜10.26 周一 stay in Hobart
+MONA 
+* Battery Point
+* Salamanca
+* 市区慢逛
+
+### Day 4｜10.27 周二 stay in Hobart
 Port Arthur（亚瑟港）
 车程：
 约 1.5 小时
 * Port Arthur Historic Site
 * Tasman Peninsula 海岸线
 * Remarkable Cave 等
-
-### Day 4｜10.27 周二 stay in Hobart
-MONA 
-* Battery Point
-* Salamanca
-* 市区慢逛
 
 ### Day 5｜10.28 周三 stay in Triabunna
 Bonorong Wildlife Sanctuary
